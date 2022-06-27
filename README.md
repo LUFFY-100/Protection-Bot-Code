@@ -1,7 +1,7 @@
 # Protection-Bot-Code
 _______________________________
 So If Any Error Pls Contact Me This my discord server :
-https://discord.gg/JUGh5xpcNg
+soon
 
 Thank you
 Part 2 Comming Soon If we hit 100 views.
